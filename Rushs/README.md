@@ -1,6 +1,6 @@
 # All Days
 
-Here's my work for the 12 days of pools.
+Here's my work for the 2 rushs and the stumper.
 
 # Marks
 
